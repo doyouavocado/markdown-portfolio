@@ -1,1 +1,1 @@
-Replace this with a link to your a GitHub or social media profile.
+https://www.linkedin.com/in/daniel-scales-7b7822113/
